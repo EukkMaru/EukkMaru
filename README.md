@@ -1,3 +1,1 @@
-fuck you
-
-and your mom
+I want to
